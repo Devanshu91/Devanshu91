@@ -1,6 +1,6 @@
 Oasis Graphic Design 
 Task-1
 
+![WhatsApp Image 2022-11-28 at 11 30 15](https://user-images.githubusercontent.com/116432842/204207511-3e4c4a09-90fd-4e94-adcd-3af30d864899.jpeg)
 
-https://user-images.githubusercontent.com/116432842/204205292-9d3fce19-2c54-49dd-a234-eaa6a13f3966.mp4
 
